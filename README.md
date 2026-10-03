@@ -6,5 +6,5 @@ Demo : TEST_ACCOUNTS
 
 telegram: https://t.me/yuannguoivn
 
-
-# AUTO 𝗚𝗨𝗘𝗦𝗧 𝗚𝗘𝗡 + SPIN GACHA có rồi nhưng không share đc đâu
+# We will be sharing the following at 10 PM tonight (Vietnam time) 👇
+ AUTO 𝗚𝗨𝗘𝗦𝗧 𝗚𝗘𝗡 + SPIN GACHA có rồi nhưng không share đc đâu
